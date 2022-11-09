@@ -1,2 +1,2 @@
 # Instagram-Account-Closure
-Not Fixed Still Updated / Hal Günceldir :)
+Not Fixed Still Updated / Hala Günceldir :)
